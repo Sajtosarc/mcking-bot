@@ -1,0 +1,2 @@
+# mcking-bot
+gay
